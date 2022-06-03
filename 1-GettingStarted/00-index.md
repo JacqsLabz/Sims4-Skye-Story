@@ -1,8 +1,8 @@
-Skye Aston is available for download on the Sims 4 gallery (I would put a link, but I think EA likes to because those, so just search). I made a CC version that has her arm bandage & a noCC version that doesn't have that. So if you want the "full" version of her, make sure you have "include custom content" checked. Her household description is:
+Skye Aston is available for download on the Sims 4 gallery (I would put a link, but I think EA likes to break/change those, so just search her name). I made a CC version that has her arm bandage & a noCC version that doesn't have that (or any other CC, obviously?). So if you want the "full" version of her, make sure you have "include custom content" checked. Her household description is:
 
-> Skye nearly lost her left arm, then lost her brother, & now wants to start a farm in the countryside. She always wears his dog tags and the bandages that make it possible to use her disabled arm. But will her independent loner nature clash with Henford-on-Bagley's close-knit community? - - Only CC is arm bandage - https://nell-le.tumblr.com/post/189508187539/bandage-set-hq-compatible-base-game-compatible #cottageliving #R2R #rags-to-riches #cottage #living #woman #single #farm #starter
+> Skye nearly lost her left arm, then lost her brother, & now wants to start a farm in the countryside. She always wears his dog tags and the bandages that make it possible to use her disabled arm. But will her independent loner nature clash with Henford-on-Bagley's close-knit community? - - Only CC is arm bandage - https://nell-le.tumblr.com/post/189508187539/bandage-set-hq-compatible-base-game-compatible #cottageliving #cottage #living #woman #single #farm #starter
 
-Not totally sure why on the dog tags or the arm, it just popped in my head that way. "Give her dog tags." Why? "Just do it" Ok. "Those are her brother's dog tags, he died in the military" was about how it went.
+Not totally sure why on the dog tags or the arm, it just popped in my head that way. Something like: "Give her dog tags." *Why?* "Just do it" *Ok.....* "Those are her brother's dog tags, he died while serving in the military" *What?* "Ok I'm done, continue what you were doing" *Anything else you wanna share?* "Nope!" - was about how it went.
 
 I decided she would live in Finchwick village, at least for now. Using her savings (aka starter funds), she bought 5 Cobblebottom Street (accross from the bar), with the lot challenges: wild foxes & simple living.
 
@@ -55,4 +55,4 @@ Here's the house so far:
 ![](06-03-22_12-45-35%C2%A0PM.png)
 
 ![](06-03-22_12-45-47%C2%A0PM.png)
-Oh yeah: this is Robbin, our resident wild fox. I think his outfit was a reward from an errand? Either way it's cute & funny. 
+Oh yeah: this is Robbin, our resident wild fox. I think his outfit was a reward from an errand? Either way it's cute & funny.
