@@ -4,7 +4,7 @@ Skye Aston is available for download on the Sims 4 gallery (I would put a link, 
 
 Not totally sure why on the dog tags or the arm, it just popped in my head that way. Something like: "Give her dog tags." *Why?* "Just do it" *Ok.....* "Those are her brother's dog tags, he died while serving in the military" *What?* "Ok I'm done, continue what you were doing" *Anything else you wanna share?* "Nope!" - was about how it went.
 
-I decided she would live in Finchwick village, at least for now. Using her savings (aka starter funds), she bought 5 Cobblebottom Street (accross from the bar), with the lot challenges: wild foxes & simple living.
+I decided she would live in Finchwick village, at least for now. Using her savings (aka sims starter funds) she bought 5 Cobblebottom Street (accross from the bar), with the lot challenges: wild foxes & simple living.
 
 ![](05-30-22_5-23-50%C2%A0AM.png)
 First order of business: I bought a baby hen chick & named her Hannah.
@@ -16,7 +16,7 @@ So cute!
 Next we got some plants going, oversized lectuce and some stuff from some seed packs.
 
 ![](05-30-22_5-30-54%C2%A0AM.png)
-The bar owner & her husband were the whole welcome wagon.
+The bar owner & her husband were all we got for the welcome wagon.
 
 ![](05-30-22_5-42-00%C2%A0AM.png)
 I started getting her out to meet everyone & get started on doing favors.
