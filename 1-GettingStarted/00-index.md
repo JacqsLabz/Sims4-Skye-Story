@@ -37,7 +37,7 @@ Alright birds, *speak* to me.
 Oh good, he's firty and she's on drugs... -.-'
 
 ![](05-30-22_7-28-07%C2%A0AM.png)
-I managed to score some stuff to expand her garden
+I managed to score some seeds while out & about, so I expanded the garden. 
 
 ![](05-30-22_7-32-35%C2%A0AM.png)
 And Hannah grew up!
